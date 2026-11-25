@@ -5,4 +5,4 @@ Yunnie - Tsu ( Character used )
 <table align="center"><th>
 <details><summary> <br> BYI / BASIC INFO </summary>  
 <br><p align="center"> I give up trying to make this look pretty. fuck you github i hate you.
-<br> (https://casyuce.atabook.org/) 
+<br> (https://listography.com/Xingqiukisser?m=0580652416) 
