@@ -1,1 +1,4 @@
-<img width="1920" height="766" alt="57502ea8a0c366ec5fff4935fb6da5ab122f0794" src="https://github.com/user-attachments/assets/6dec9020-aee3-4021-88c6-e2c52e6ede94" />
+<p align="center"> <img width="250" height="250" alt= "tumblr_896ddc6ceb210cd47844fe5d06734d3c_8a270730_250" src= "https://github.com/user-attachments/assets/75a5c0ec-1cfe-4b76-aef4-e43da3634e80" />
+
+<div align="center">
+Yunnie - Tsu ( Character used )
