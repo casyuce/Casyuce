@@ -2,3 +2,7 @@
 
 <div align="center">
 Yunnie - Tsu ( Character used )
+<table align="center"><th>
+<details><summary> <br> BYI / BASIC INFO </summary>  
+<br><p align="center"> WIP
+<br>[ata](https://casyuce.atabook.org/)
